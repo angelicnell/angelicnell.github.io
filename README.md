@@ -5,7 +5,7 @@ socials
 
 [ig acc](https://www.instagram.com/angelicnell/)
 
-[fb acc] 
+[fb acc](https://www.facebook.com/angelicnell)
 
 favs
 

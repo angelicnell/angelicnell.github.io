@@ -1,7 +1,7 @@
 # angelicnell.github.io
 **hello!**
 
-socials ^^
+socials :)
 
 [ig acc](https://www.instagram.com/angelicnell/)
 

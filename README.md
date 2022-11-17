@@ -7,7 +7,7 @@ socials :)
 
 [fb acc](https://www.facebook.com/angelicnell)
 
-favs
+favs <3
 
 https://www.youtube.com/watch?v=5-rbSNzU_b8
 

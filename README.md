@@ -20,7 +20,10 @@ https://www.youtube.com/watch?v=KaM1bCuG4xo
 
 *the members*
 
-**HEESEUNG**
+**LEE HEESEUNG**
 
 ![alt text](https://i.pinimg.com/564x/63/7b/d8/637bd88e814ebb558c5a1a18f642c381.jpg)
 
+**PARK JONGSEONG**
+
+![alt text](https://i.pinimg.com/736x/90/6d/7b/906d7b538349f8ce3e4fe8227fc77726.jpg)

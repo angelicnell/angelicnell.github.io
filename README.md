@@ -13,8 +13,9 @@ https://www.youtube.com/watch?v=5-rbSNzU_b8
 
 https://www.youtube.com/watch?v=KaM1bCuG4xo
 
-## *GET TO KNOW ENHYPEN*
+## **GET TO KNOW ENHYPEN**
 
-the members :)
 
 ![alt text](https://i.pinimg.com/564x/13/a6/ee/13a6ee1844a0090262c7ed0476b2b796.jpg)
+
+*the members*

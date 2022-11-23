@@ -27,3 +27,23 @@ https://www.youtube.com/watch?v=KaM1bCuG4xo
 **PARK JONGSEONG**
 
 ![alt text](https://i.pinimg.com/736x/90/6d/7b/906d7b538349f8ce3e4fe8227fc77726.jpg)
+
+**SIM JAEYUN**
+
+
+
+**PARK SUNGHOON**
+
+
+
+*KIM SUNOO**
+
+
+
+**YANG JUNGWON**
+
+
+
+**NISHIMURA RIKI**
+
+
